@@ -1,2 +1,2 @@
 # Dragon-Ball-Z-Kakarot-PC-DLC
-https://github.com/popunde/Dragon-Ball-Z-Kakarot-PC-DLC
+"Dragon Ball Z: Kakarot" for PC is an immersive action RPG that brings the iconic Dragon Ball Z storyline to life. Dive into the epic world of Dragon Ball Z as you follow the journey of Goku and other Z fighters through key moments from the series. Unleash powerful attacks, engage in intense battles, and explore an expansive open world filled with familiar locations and characters. The game includes additional DLC content that expands the adventure, introducing new story arcs, characters, and challenges for players to conquer. Experience the thrill of reliving the legendary battles and heartfelt moments from the anime in a visually stunning and action-packed gaming experience.
